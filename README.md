@@ -1,1 +1,0 @@
-# progettoarvkd7q7
